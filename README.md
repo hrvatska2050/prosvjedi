@@ -1,4 +1,3 @@
-14.11. Inicijativa ujedinjene Labinštine, Pula, protiv projekta KOdeCO [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-za-cistu-istru-u-puli-stop-co2-i-spaljivanju-otpada/)  
 21.11. obitelji Periš, Trg bana Jelačića, traže nova pravila o sputavanju i obvezan videonadzor [kristianjosipperis.hr](https://kristianjosipperis.hr/)  
 03.12. prosvjed, osobni asistenti
 
