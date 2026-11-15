@@ -4,6 +4,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | Građanska inicijativa ujedinjene Labinštine ([HRT v.](https://www.youtube.com/watch?v=qFVlLYXneSI)) | ispred zgrade Istarske županije, Pula | 14.11.2026 | zbog zagađenja i spaljivanja otpada u tvornici cementa Holcim u Koromačnu |
 | prosvjed | udruga “Malo čudo” ([Index](https://www.index.hr/vijesti/clanak/roditelji-njegovatelji-treci-tjedan-prosvjeduju-nemamo-pravo-na-bolovanje/2856739.aspx)) | ispred Ministarstva rada, Zagreb | 12.11.2026 | traže pravo na bolovanje i podršku obiteljima koje skrbe o djeci s teškoćama u razvoju |
 | prosvjed | zaposlenici klinike ([HRT](https://vijesti.hrt.hr/hrvatska/prosvjed-pred-klinikom-za-psihijatriju-zbog-uhicenja-medicinskih-tehnicara-13000921)) | ispred Klinike za psihijatriju “Sveti Ivan”, Zagreb | 09.11.2026 | iskazivanje podrške uhićenim kolegama i upozoravanje na izuzetno teške i nesigurne uvjete rada na psihijatrijskim odjelima |
 | prosvjed | A-HSP ([Index](https://www.index.hr/vijesti/clanak/keleminec-ispred-kuce-sdssovke-pustao-bojnu-cavoglave-i-kreni-gardo-bandu-gazi/2855110.aspx), [VIDA v.](https://www.youtube.com/watch?v=ZcMYqdmpwD0)) | ispred kuće saborske zastupnice Dragane Jeckov, Negoslavci | 08.11.2026 | traže informacije o sudbini nestalih hrvatskih branitelja i civila |
