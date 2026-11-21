@@ -3,6 +3,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | A-HSP ([Dalmacija Danas](https://www.dalmacijadanas.hr/video-ivosevic-brutalno-ismijao-keleminceve-prosvjednike-pustao-reklamu-za-hemeroide-himnu-cirkusa/)) | ispred doma bivšeg zamjenika gradonačelnika Splita Bojana Ivoševića, Split | 21.11.2026 | |
 | “Štrajk mladih” | učenici i studenti ([HRT v.](https://www.youtube.com/watch?v=dfMCrzNkBrw), [RTL v.](https://www.youtube.com/watch?v=lAX3g1CCvX8)) | diljem Hrvatske | 20.11.2026 | traže smanjenje izdvajanja za obranu, više mjesta u studentskim domovima, topli obrok u srednjim školama, psihologe u svim školama, kraće čekanje na dijagnostičke pretrage |
 | prosvjed | Građanska inicijativa ujedinjene Labinštine ([HRT v.](https://www.youtube.com/watch?v=qFVlLYXneSI)) | ispred zgrade Istarske županije, Pula | 14.11.2026 | zbog zagađenja i spaljivanja otpada u tvornici cementa Holcim u Koromačnu |
 | prosvjed | udruga “Malo čudo” ([Index](https://www.index.hr/vijesti/clanak/roditelji-njegovatelji-treci-tjedan-prosvjeduju-nemamo-pravo-na-bolovanje/2856739.aspx)) | ispred Ministarstva rada, Zagreb | 12.11.2026 | traže pravo na bolovanje i podršku obiteljima koje skrbe o djeci s teškoćama u razvoju |
