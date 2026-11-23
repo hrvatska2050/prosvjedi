@@ -1,8 +1,8 @@
-21.11. obitelji Periš, Trg bana Jelačića, traže nova pravila o sputavanju i obvezan videonadzor [kristianjosipperis.hr](https://kristianjosipperis.hr/)  
 03.12. prosvjed, osobni asistenti
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| komemoracija | obitelj Periš | Trg bana Jelačića, Zagreb | 21.11.2026 | traže nova pravila o sputavanju i obvezan videonadzor |
 | prosvjed | A-HSP ([Dalmacija Danas](https://www.dalmacijadanas.hr/video-ivosevic-brutalno-ismijao-keleminceve-prosvjednike-pustao-reklamu-za-hemeroide-himnu-cirkusa/)) | ispred stana bivšeg zamjenika gradonačelnika Splita Bojana Ivoševića, Split | 21.11.2026 | |
 | prosvjed i bojkot nastave “Štrajk mladih” | učenici i studenti ([HRT v.](https://www.youtube.com/watch?v=dfMCrzNkBrw), [RTL v.](https://www.youtube.com/watch?v=lAX3g1CCvX8)) | diljem Hrvatske | 20.11.2026 | traže smanjenje izdvajanja za obranu, više mjesta u studentskim domovima, topli obrok u srednjim školama, psihologe u svim školama, kraće čekanje na dijagnostičke pretrage |
 | prosvjed | Građanska inicijativa ujedinjene Labinštine ([HRT v.](https://www.youtube.com/watch?v=qFVlLYXneSI)) | ispred zgrade Istarske županije, Pula | 14.11.2026 | zbog zagađenja i spaljivanja otpada u tvornici cementa Holcim u Koromačnu |
