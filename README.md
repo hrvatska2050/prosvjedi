@@ -2,6 +2,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | bivši radnici tvornice azbesta “Salonit” ([RTL v.](https://www.youtube.com/watch?v=1WMExg9-Jc8)) | ispred zgrade Sabora, Zagreb | 24.11.2026 | traže odštetu zbog dugogodišnje izloženosti štetnim kemikalijama |
 | komemoracija | obitelj Periš ([Dnevnik](https://dnevnik.hr/vijesti/hrvatska/foto-komemoracija-za-perisa---1015831.html), [RTL v.](https://www.youtube.com/watch?v=N-oCS9GLYts)) | Trg bana Jelačića, Zagreb | 21.11.2026 | traže nova pravila o sputavanju i obvezan videonadzor |
 | prosvjed | A-HSP ([Dalmacija Danas](https://www.dalmacijadanas.hr/video-ivosevic-brutalno-ismijao-keleminceve-prosvjednike-pustao-reklamu-za-hemeroide-himnu-cirkusa/)) | ispred stana bivšeg zamjenika gradonačelnika Splita Bojana Ivoševića, Split | 21.11.2026 | |
 | prosvjed i bojkot nastave “Štrajk mladih” | učenici i studenti ([HRT v.](https://www.youtube.com/watch?v=dfMCrzNkBrw), [RTL v.](https://www.youtube.com/watch?v=lAX3g1CCvX8)) | diljem Hrvatske | 20.11.2026 | traže smanjenje izdvajanja za obranu, više mjesta u studentskim domovima, topli obrok u srednjim školama, psihologe u svim školama, kraće čekanje na dijagnostičke pretrage |
