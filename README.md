@@ -2,6 +2,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| mirno okupljanje | inicijativa “Od srca do srca za potrebite” ([HINA v.](https://www.youtube.com/watch?v=xM2-iSuDTds)) | Trg kralja Tomislava, Zagreb | 25.11.2026 | kako bi upozorili na  na važnost borbe protiv nasilja nad ženama i femicida |
 | prosvjed | bivši radnici tvornice azbesta “Salonit” ([RTL v.](https://www.youtube.com/watch?v=1WMExg9-Jc8)) | ispred zgrade Sabora, Zagreb | 24.11.2026 | traže odštetu zbog dugogodišnje izloženosti štetnim kemikalijama |
 | komemoracija | obitelj Periš ([Dnevnik](https://dnevnik.hr/vijesti/hrvatska/foto-komemoracija-za-perisa---1015831.html), [RTL v.](https://www.youtube.com/watch?v=N-oCS9GLYts)) | Trg bana Jelačića, Zagreb | 21.11.2026 | traže nova pravila o sputavanju i obvezan videonadzor |
 | prosvjed | A-HSP ([Dalmacija Danas](https://www.dalmacijadanas.hr/video-ivosevic-brutalno-ismijao-keleminceve-prosvjednike-pustao-reklamu-za-hemeroide-himnu-cirkusa/)) | ispred stana bivšeg zamjenika gradonačelnika Splita Bojana Ivoševića, Split | 21.11.2026 | |
